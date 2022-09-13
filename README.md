@@ -11,3 +11,7 @@ A declaration of the people, for the people, by the people - everywhere. Every s
 The Open Web3 Constituitin is in DRAFT mode. Anyone can comment, contribute and even fork, if neccesary.
 
 **Join Us**
+
+
+---
+Initiative started by [Friends of Pooly](https://www.friendsofpooly.com/) 🪶 🛡️
